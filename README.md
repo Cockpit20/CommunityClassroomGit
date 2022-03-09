@@ -1,3 +1,3 @@
 # CommunityClassroomGit
 
-- Soumyadeep Chandra says that this community is amazing.
+- Soumyadeep Chandra says that this community is amazing!
